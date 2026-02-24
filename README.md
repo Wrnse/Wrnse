@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm a UM Student, 
+I'm a UM Secret, 
 
 
 ## 🌐 Socials:
