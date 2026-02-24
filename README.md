@@ -1,4 +1,4 @@
-# Github Profile Demo
+# Github Demo
 
 # 💫 About Me:
 I'm a UM Secret, 
